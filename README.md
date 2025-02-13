@@ -1,10 +1,10 @@
 ![](https://64.media.tumblr.com/418aec8a75cf4cea3b03d4346886a7e3/e4faf451d7d1f33d-d0/s500x750/8bd3cc37452cd884c8b2e6a61071c4cd7d2bddb4.gifv)
 
 I am ALWAYS open to interaction, dont hesitate to come up to me and start a conversation
-I do have very bad anxiety so its hard for me to approch people so I would prefer if you came up to me </3
+I do have very bad anxiety and its hard for me to approch people so I would prefer if you came up to me </3
 . . .
 
-I love when people come and sit next to me!!! :3c 
+Dont be shy!!! I love when people come and sit next to me!!! :3c 
 
 ![](https://cdn.discordapp.com/attachments/562302887145766923/1339464759921348699/Untitled17_20250212235732_1.png?ex=67aed144&is=67ad7fc4&hm=65316e2e308f4e6a43a1aedc97cae5f053bb422c499163cf14c3adf4e7cb87d1&)
 
