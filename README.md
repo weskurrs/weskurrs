@@ -1,4 +1,4 @@
-![](https://64.media.tumblr.com/418aec8a75cf4cea3b03d4346886a7e3/e4faf451d7d1f33d-d0/s500x750/8bd3cc37452cd884c8b2e6a61071c4cd7d2bddb4.gifv)
+![](https://64.media.tumblr.com/1328ef96fef208597c4ee2ce50c88a19/038b5d1fbc72f290-d0/s400x600/fe182189e15a8bfcc1ae0821d89668ee1993c055.gifv)
 
 I am ALWAYS open to interaction, dont hesitate to come up to me and start a conversation
 I do have very bad anxiety and its hard for me to approch people so I would prefer if you came up to me </3
@@ -6,7 +6,8 @@ I do have very bad anxiety and its hard for me to approch people so I would pref
 
 Dont be shy!!! I love when people come and sit next to me!!! :3c 
 
-![](https://file.garden/ZdgOEpzmo3pLm1gF/Untitled17_20250212235732_1.png)
+
+![](https://file.garden/ZdgOEpzmo3pLm1gF/noFilter.png)  ![](https://file.garden/ZdgOEpzmo3pLm1gF/poop.png)
 
 
 *I rarely change any of these but i'll still put this here*
@@ -17,4 +18,4 @@ Dont be shy!!! I love when people come and sit next to me!!! :3c
 
 ⛔ - I never use this lowkey
 
-![](https://64.media.tumblr.com/418aec8a75cf4cea3b03d4346886a7e3/e4faf451d7d1f33d-d0/s500x750/8bd3cc37452cd884c8b2e6a61071c4cd7d2bddb4.gifv)
+![](https://64.media.tumblr.com/6b4c2751f8d983e6f0d20df87417bbe7/038b5d1fbc72f290-7b/s400x600/603038410b1d16924ead6541774ee42a302a75ea.gifv)
