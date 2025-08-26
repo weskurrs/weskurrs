@@ -6,6 +6,8 @@ I do have very bad anxiety and its hard for me to approch people so I would pref
 
 Dont be shy!!! I love when people come and sit next to me!!! :3c 
 
+RESIDENT EVIL FANS PLEASE TALK TO ME!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!
+
 
 ![](https://file.garden/ZdgOEpzmo3pLm1gF/RE4_Wesker.PNG.webp)
 
