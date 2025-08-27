@@ -8,6 +8,8 @@ Dont be shy!!! I love when people come and sit next to me!!! :3c
 
 RESIDENT EVIL FANS PLEASE TALK TO ME!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!
 
+Please only interact if you are above 16!! 
+
 
 ![](https://file.garden/ZdgOEpzmo3pLm1gF/RE4_Wesker.PNG.webp)
 
